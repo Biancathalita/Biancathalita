@@ -1,4 +1,4 @@
-## Hi there 👋
+## Ola 👋
 
 **Seja bem vindo ao meu perfil**
 Meu nome é **Bianca Thalita Rodrigues de Oliveira**
